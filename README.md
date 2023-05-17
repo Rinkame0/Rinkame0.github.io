@@ -1,0 +1,1 @@
+# Rinkame0.github.io
